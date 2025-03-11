@@ -4,7 +4,7 @@
 ✨重要提醒✨收藏本页面，避免迷路！<br>
 ❤️ 👉 【最新地址】 ：https://最新.w1af3d.cyou/《福利》<br>
 ❤️ 👉 【最新地址】 ：https://官方.w1af3d.cyou/《研究》<br>
-❤️ 👉 【最新地址】 ：https://.dizhi66.top<br>
+❤️ 👉 【最新地址】 ：https://dizhi66.top<br>
 官网永久地址发布：https://wangjidizhi.com<br>
 
 ---
